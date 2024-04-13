@@ -23,4 +23,4 @@ Rải bot đào bitcoin (*vip 1) ⛏️💰
 Tự động gởi data về máy mỗi ngày 📨🔄.
 
 
-Join discord sever : https://discord.gg/f4TBuZJU
+Join discord sever : https://discord.gg/jqnXjBS49S
